@@ -10,5 +10,5 @@ Love building things people actually use 🤍
 - 1.5 years of professional experience + national/international competition wins
 - Always learning through research, certifications, and hands-on projects
 
-Want to connect? Reach me on my social media or email me at [oei.vincent20@gmail.com](mailto:oei.vincent20@gmail.com) 
+**Want to connect?** Reach me on my social media or email me at [oei.vincent20@gmail.com](mailto:oei.vincent20@gmail.com) 
 
